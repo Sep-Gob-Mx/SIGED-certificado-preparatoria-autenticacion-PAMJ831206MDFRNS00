@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-PAMJ831206MDFRNS00
+PAMJ831206MDFRNS00
